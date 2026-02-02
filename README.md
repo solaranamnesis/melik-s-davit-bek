@@ -1,6 +1,6 @@
-# Մելիք Ս․ Դաիիթ֊Բէկ․
+# Մելիք Ս․ Դաւիթ-Բէկ․
 
-Public Domain works by Մելիք Ս․ Դաիիթ֊Բէկ․ (Melik' S. Davit'-Bēk)
+Public Domain works by Մելիք Ս․ Դաւիթ-Բէկ․ (Melik' S. Davit'-Bēk)
 
 ## Լոիսինեանք․
 
